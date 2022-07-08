@@ -1,3 +1,2 @@
 # Pacarku
 punyaku bang
-kami
